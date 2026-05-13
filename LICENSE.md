@@ -1,4 +1,4 @@
-# 
+# rare Descript for macOS Plugin | noise-reduction + color-correction is the best Descript for macOS plugin, featuring noise-reduction and color-correction. Safe, efficient, and
 
 
 
